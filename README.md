@@ -32,4 +32,4 @@ also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilot
 
 crd to [ouija](https://ouija.crd.co/#) / [watermelon](https://watermelon.crd.co) for dividers n stamps , [kiochisato](https://www.tumblr.com/kiochisato) for graphics !!
 
-made by [Orph](https://github.com/Ovrpheus) !! ( You're welcome Machi <img src="https://ouija.crd.co/assets/images/gallery08/62faace8.png?v=b8c53f22"/> )
+made by [Orph](https://github.com/Ovrpheus) !! You're welcome Machi <img src="https://ouija.crd.co/assets/images/gallery08/62faace8.png?v=b8c53f22"/>
